@@ -23,7 +23,7 @@ Double the Chicken portions.
 
 
 #Directions:
-- For the chicken: In a large bowl, whisk together the cornstarch and egg whites with a fork until almost frothy, about 1 minute. Add the chicken to the mixture and allow to sit for 5 to 10 minutes.
+- For the chicken: In a large bowl, whisk together the cornstarch and egg whites with a fork until almost frothy, about 1 minute. Wait for your forearm to recover, and then whisk for an additional 3 minutes. Add the chicken to the mixture and allow to sit for 5 to 10 minutes in the fridge.
 
 - For the sauce: Meanwhile, put the orange juice, soy sauce, sugar, vinegar, sesame oil, salt, crushed red pepper, garlic and ginger in a small nonstick skillet and whisk. Heat until bubbling and starting to thicken, about 5 minutes.
 
