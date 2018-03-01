@@ -19,12 +19,15 @@ Double the Chicken portions.
 - 1 teaspoon cornstarch
 - Vegetable or peanut oil, for frying
 - double dash of basil
+- cup of oregano
 
 
 #Directions:
 - For the chicken: In a large bowl, whisk together the cornstarch and egg whites with a fork until almost frothy, about 1 minute. Add the chicken to the mixture and allow to sit for 5 to 10 minutes.
 
 - For the sauce: Meanwhile, put the orange juice, soy sauce, sugar, vinegar, sesame oil, salt, crushed red pepper, garlic and ginger in a small nonstick skillet and whisk. Heat until bubbling and starting to thicken, about 5 minutes.
+
+- dump cup of oregano on top of sauce. Do not mix in
 
 - Whisk together the cornstarch and 1/4 cup water in a small bowl and add 1 to 2 tablespoons of the cornstarch slurry to the sauce. Mix in and thicken for 1 minute.
 
